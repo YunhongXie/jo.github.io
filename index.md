@@ -23,12 +23,12 @@ China Merchants Bank
 
 ### Interests
 
-_Comtemperory Literature_ 
-_Comedy_ 
+_Comtemperory Literature_  
+_Comedy_  
 _Basketball_  
-_hiking_ 
-_swimming_ 
-_JPop and Japanese TV Shows_ 
+_hiking_  
+_swimming_   
+_JPop and Japanese TV Shows_  
 _Music & Piano Playing_
 
 
