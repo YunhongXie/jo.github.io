@@ -5,7 +5,7 @@
 ```
 
 University of Rochester 
-         - Master of Sicence in Finance (STEM)
+         - Master of Science in Finance (STEM)
 Sichuan University      
          - Bachelor of Management, ACCA Accounting 
 
