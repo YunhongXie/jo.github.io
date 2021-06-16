@@ -5,23 +5,12 @@
 ```
 
 University of Rochester 
-         - Master of Science in Finance (STEM)
+         - Master of Science, Finance (STEM)
 Sichuan University      
          - Bachelor of Management, ACCA Accounting 
 
 ```
 
-### Professional Experience
-```
-
-Lingjun Investment LLP
-                          Data Engineer  
-Techsharpe
-                          Quant Analyst Intern
-China Merchants Bank   
-                          Retail Banking
-
-```
 
 ### Interests
 
